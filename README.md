@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @muhammeddckrr
+- 👀 I’m interested in coding,playing game,working
+- 🌱 I’m currently learning python,javascript,html,css
+- 💞️ I’m looking to collaborate on coding,software
+- 📫 How to reach me muhammedd.ckrr@gmail.com or instagram = @muhammedd.ckrr
